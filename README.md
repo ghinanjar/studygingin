@@ -1,0 +1,2 @@
+# studygingin
+hanya belajar
